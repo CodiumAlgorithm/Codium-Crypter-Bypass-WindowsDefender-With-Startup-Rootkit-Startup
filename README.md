@@ -2,10 +2,13 @@
 
 
 
+***CONTACT US TELEGRAM : https://t.me/CodiumTeam ***
+
+
 
 ***VIDEO BYPASSING WINDOWS DEFENDER WITH ROOTKIT STARTUP : ***
 
-
+https://streamable.com/4z4m8z
 
 https://www.youtube.com/watch?v=VMZ2hkfU-hc
 
